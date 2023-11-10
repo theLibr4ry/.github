@@ -1,1 +1,1 @@
-<h1>Biblioteaca de pdfs pirateados e com traducao coletiva</h1>
+<h1>Biblioteca de pdf's pirateados e com tradução coletiva</h1>
